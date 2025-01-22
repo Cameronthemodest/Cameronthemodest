@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on ... everything? pretty much yeah!
 - 📫 How to reach me ... fabian_cameron@yahoo.com
 - 😄 Pronouns: ... He/Him
-- ⚡ Fun fact: ... I'M psychic enabled. 
+- ⚡ Fun fact: ... I'M GOD enabled. 
 
 <!---
 Cameronthemodest/Cameronthemodest is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
